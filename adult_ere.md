@@ -1,8 +1,8 @@
 # L’adult—ère
 
-Ils se murmure depuis quelque temps déjà 
+Il se murmure depuis quelque temps déjà 
 Que une fois la nuit tombée
- Lorsque le  pilimpikou dort à poings fermés
+Lorsque le  pilimpikou dort à poings fermés
 Et que les chiens qui veillent sur le village endormi
 Commencent à bailler
 Se meuvent dans le noir d’étranges créatures :
