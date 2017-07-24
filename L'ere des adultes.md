@@ -1,4 +1,4 @@
-# L’adult—ère
+# L’adult—ère (L'ère des adultes!)
 
 Il se murmure depuis quelque temps déjà  
 Que une fois la nuit tombée  
